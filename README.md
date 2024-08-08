@@ -1,1 +1,1 @@
-"# Junagadh.github.io" 
+https://khushipadaliya.github.io/Junagadh.github.io/
